@@ -11,7 +11,7 @@
 
 ## <samp> Attention please </samp>
 * Unfortunately, I limit this bot to only being able to send 10 viruses in 1 day
-* If you want premium (send unlimited) you can contact [WhatsApp](https://wa.me/6285235637978)
+* If you want premium (send unlimited) you can contact [WhatsApp](https://wa.me/+94778829117)
 
 ## <samp>How to install </samp>
 
